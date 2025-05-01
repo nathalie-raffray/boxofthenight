@@ -10,8 +10,8 @@ All characters are totally made up out of thin air, if you think that's you in t
 
 I made this game for my ex but she never got to play it cuz we broke up on the day I was supposed to show it to her LOL.
 
-So this is dedicated to my psycho bitch ex gf that I loved 🤪
-I kid of course...She is a Being of Light. My only solace is that she will continue to be.
+So this is dedicated to my psycho ex gf that I loved 🤪
+She is a Being of Light. My only solace is that she will continue to be.
 
 Thank you for everything.
 
